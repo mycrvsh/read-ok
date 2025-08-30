@@ -8,7 +8,7 @@ im going to put some additional info here for pt only since i dont have any room
 
 i like sitting with people, but i never usually approach people for cuddles because im terrified of inting first.. if you were nice to me one time i might approach you first, though ill most likely keep to myself. im sorry if i seem scary, i swear im kind,, if anything, im probably more scared of you than you are of me.. please sit with me; i like it when people do..
 
-i dont talk a lot. i likely wont talk unless you speak to me first. im kind of just terrified of initiating anything with anyone until i think we're close enough.. i wont be that way with you forever; once we talk more ill start opening up... please be patient with me
+i dont talk a lot. i likely wont talk unless you speak to me first. im kind of just terrified of initiating anything with anyone until i think we're close enough.. i wont be that way with you forever; once we talk more ill start opening up... please be patient with me. my social battery also runs out really fast, so please keep that in mind when interacting with me
 
 if you want to friend me, please dont panic if i dont show up on your friend list. im usually on offline mode, but i think its pretty easy to find me anyway since i dont usually move locations a lot, and my gh will always be linked to all my skins.. but if youre having trouble finding me or youre unsure if im online, send me a msg and ask ^^ ill respond quickly if i am
 
