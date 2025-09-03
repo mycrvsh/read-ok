@@ -14,7 +14,7 @@ if you want to friend me, please dont panic if i dont show up on your friend lis
 
 i dont hide people permanently (without reason). if i disappear out of nowhere while youre talking to me and it seems like ive hidden you, its probably because you were trying to roleplay with me, or you made me uncomfortable (which, as long as youre normal towards me, you dont have to worry about). my hides usually only last for 15 minutes or 24 hours, and you wont be hidden again if you dont do whatever you did the first time again
 
-ship ints are ok; im fine with a majority of ships as long as theyre normal... iwec/dni if you want to do ship ints for dblfed though,, sorryyy...
+ship ints are ok; im fine with a majority of ships as long as theyre normal... iwec/dni if you want to do ship ints for dblfed/pizzaburger though,, sorryyy...
 
 i dissociate a lot.. thats not really important because i wont tell you if i am, but if you ever wonder why i disappear for long periods of time, that may be the reason why. dont worry if i dont show up for a while, i should come back eventually
 
